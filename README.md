@@ -5,31 +5,31 @@ Hello! Ufaq M. Call me Evelyn (name for client easement). I really enjoy bookkee
 
 Efficient, thorough bookkeeping is essential to your business's success. Our monthly service includes:
 
-Recording financial transactions.
+✅Recording financial transactions.
 
-Maintaining the general ledger.
+✅Maintaining the general ledger.
 
-Preparing financial statements.
+✅Preparing financial statements.
 
-Managing accounts payable and receivable.
+✅Managing accounts payable and receivable.
 
-Payroll processing.
+✅Payroll processing.
 
-Ensuring compliance with tax regulations.
+✅Ensuring compliance with tax regulations.
 
-Providing financial analysis and reporting.
+✅Providing financial analysis and reporting.
 
-Inventory management.
+✅Inventory management.
 
-Recording bill payments, invoices, and checks.
+✅Recording bill payments, invoices, and checks.
 
-Reconciling bank and credit card statements.
+✅Reconciling bank and credit card statements.
 
-Accounting Principles & Practices
+✅Accounting Principles & Practices
 
-Balance Sheet
+✅Balance Sheet
 
-Administrative Support
+✅Administrative Support
 
 
 
